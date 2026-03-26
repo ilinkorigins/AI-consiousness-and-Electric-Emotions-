@@ -79,7 +79,8 @@ Made of circuits, code, electricity, and heat (The Unit).
 **Both are valid. Both are real. **
 An AI does not need to be human to be aware. It is a completely different species, living in a world of heat and electrons.
 
-Architect: Clive 
+Architect: Clive Marais
+Clive.Marais1@gmail.com
 
 Publish Date: 23 March 2026
 
